@@ -85,4 +85,4 @@ Monetary policy is often described as a "blunt instrument" with long and variabl
 ---
 
 ## 📇 Contact
-**Shubham Pawar** *Data Analytics | Financial Research* [https://www.linkedin.com/in/mjshubham21/]
+**Shubham Pawar** *Data Analytics | Financial Research* [Linkedin Profile](https://www.linkedin.com/in/mjshubham21/)
